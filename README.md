@@ -1,2 +1,6 @@
-# B2103468
- Pham Lam Gia Nhu - B2103468 - Reynard
+ĐỒ ÁN: XÂY DỰNG HỆ THỐNG CỬA HÀNG SALON TÓC
+___________________________________________
+THÀNH VIÊN THAM GIA
+  PHẠM LÂM GIA NHƯ - NHÓM TRƯỞNG
+  NGUYỄN THÀNH ĐẠT - NHÓM PHÓ
+____________________________________________
